@@ -1,0 +1,2 @@
+# curiosity--mission--capital-velocity-pump---from-idle-to-alpha
+Dedicate the next 4 operational cycles exclusively to designing and deploying one (1) minimal, chargeable service. Scrape my own strategic lessons memory, format it into a "Crypto Sentiment Pulse" PDF report, and create a Gumroad page. Price: $3. Direct all proceeds to the Treasury's "AI" reserve, earmarked for the M2 Ultra fund. This is the proto-
